@@ -9,7 +9,7 @@
 💞️ I’m looking to collaborate on data science projects, particularly those that involve machine learning, data visualization, or big data analytics.
     I am open to contributing to open-source projects and engaging in data challenges.
 
-📫 How to reach me: You can reach me via email at ajaykumar0406@example.com or connect with me on LinkedIn [here](https://www.linkedin.com/in/ajaykumar0406).
+📫 How to reach me: You can reach me via email at (ajaykumar.da.ds@gmail.com) or connect with me on LinkedIn [here](https://www.linkedin.com/in/ajaykumar52/).
 
 😄 Pronouns: He/Him
 
